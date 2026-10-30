@@ -15,9 +15,6 @@ He/its
 
 Chud whos always in the genshin area with his son
 
-HONORABLE MENTIONS:
-@aeon-aha , @fernment , @mityoshas
-
 SHIPS!!:
 Scarbedo, Vesnica, Mityosha, Haikaveh, Cynari, Beigguang, Xingyun, Jeansa, Panttore, Xiaother, JehtLumi, XiaoVenti
 
